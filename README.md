@@ -1,0 +1,1 @@
+Informacijas glabasana, nolasisana no datnes
